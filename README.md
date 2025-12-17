@@ -40,7 +40,7 @@ I'm Laila and here you’ll find my design work:
 -  
 -  
 
----
+
 
 ### WEBSITE
 **Design and Programming:** Laila S
@@ -62,7 +62,7 @@ I'm Laila and here you’ll find my design work:
 -  
 -  
 
----
+
 
 ### VIDEO
 **Editing:** Laila Seif  
